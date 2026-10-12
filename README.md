@@ -27,4 +27,4 @@ I have worked on projects involving:
 
 ### Contact
 
-[LinkedIn](www.linkedin.com/in/nguyenminhphuc0227)
+[LinkedIn](https://www.linkedin.com/in/nguyenminhphuc0227/)
